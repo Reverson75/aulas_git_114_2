@@ -11,4 +11,4 @@
 ![Pânico do Dev](https://media.giphy.com/media/bPCwGUF2sKjyE/giphy.gif)
 
 
-![Gato Programando](https://media.giphy.com/media/13Hgw8T855x5a8/giphy.gif)
+
